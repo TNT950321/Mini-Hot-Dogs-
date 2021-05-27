@@ -1,0 +1,1 @@
+4 hot dogs, 1 large egg, 1/2 cup milk, 1 cup self-raising flour, 1/2 tsp curry powder, 1/2 tsp paprika, 1/2 tsp salt.
